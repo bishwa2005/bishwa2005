@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **br180905@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1FMfpwCLG3aHZ7xa3gxXOyCXMrcc6dfzp/view?usp=drive_link](https://drive.google.com/file/d/1FMfpwCLG3aHZ7xa3gxXOyCXMrcc6dfzp/view?usp=drive_link)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1FMfpwCLG3aHZ7xa3gxXOyCXMrcc6dfzp/view?usp=drive_link](https://drive.google.com/file/d/146le8OhXUzsfRq9DjJQaFNEYcNChxUG7/view?usp=sharing)](https://drive.google.com/file/d/1FMfpwCLG3aHZ7xa3gxXOyCXMrcc6dfzp/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
